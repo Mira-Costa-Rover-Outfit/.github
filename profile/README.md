@@ -1,4 +1,4 @@
-This is the public page for a team preparing to compete in the Mars Society's University Rover Challenge, hailing from Mira Costa HS.
+This is the page for our team preparing to compete in the Mars Society's University Rover Challenge, hailing from Mira Costa High School.
 
 Contact us at:maplesyrup297@gmail.com, aidanjeffhopson@gmail.com or rafferty.felix.wright@gmail.com
 
