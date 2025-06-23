@@ -6,5 +6,5 @@ Contact us at: maplesyrup297@gmail.com, aidanjeffhopson@gmail.com or rafferty.fe
 
 ✨✨Public versions of design docs and CADs coming soon✨✨
 
-Follow the Insta to get notified of project progressions @miracostaURCOutfit
+Follow the Insta to get notified of project progressions @miracostaurcoutfit
 
